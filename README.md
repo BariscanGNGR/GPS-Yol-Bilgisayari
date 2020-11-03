@@ -3,7 +3,7 @@ Gömülü Sistemler sınavım olan projem
 
 Kullandığım malzemeler
 
-
+-------------------------
 
 
 
